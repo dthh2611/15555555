@@ -36,7 +36,7 @@
 在享受免费资源的同时，切勿忽视平台的合法性和安全性。通过遵循这些简单的建议，您不仅能够找到高清日本AV资源，还能确保一个安全、合规的观看环境。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dthh2611/15555555 ）</span>
 
 
 
